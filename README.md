@@ -1,1 +1,1 @@
-# seomjingang
+# seomjingang/seomjingang
